@@ -1,1 +1,0 @@
-Jesus Alejandro Quezada Lara
